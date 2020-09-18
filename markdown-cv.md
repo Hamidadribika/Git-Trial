@@ -3,7 +3,7 @@
 ##### Hamida.dr02@yahoo.com   
 ##### +961 81 762709
 
-
+![Personal photo](hamidadribika.jpg)
 
 <br>
 
